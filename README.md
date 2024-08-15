@@ -6,7 +6,7 @@
 ![images (56) (1)](https://github.com/user-attachments/assets/d4aea8c5-86ad-4cc0-ba67-53766e44a771)
 INT- DNI  Doctor who Genshin impact Honkai star rail
 Habzin and hellvus any gaming that im in or fandom just ask
-Dni- yukong+Tingyun ships {Its a damn proship... dont interact} Dsmp fans.. mosly Willbur soot supporters dni
+Dni- yukong+Tingyun ships {Its a damn proship... dont interact} Xiaother Dulec- incest ships DNI  Dsmp fans.. mosly Willbur soot supporters dni
 Yandere sim fandom DNI... i dont support the Game or The creator... attack my dms i will block you.
 If your Raciest xenophobic or sexist dni.
 
