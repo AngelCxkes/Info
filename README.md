@@ -12,7 +12,7 @@ If your Raciest xenophobic or sexist dni.
 
 ![Kou Icon—😻💕!! (1)](https://github.com/user-attachments/assets/6422f2c3-c9a9-4fed-abbf-5fe55e8fcf1e)
 
-Diaboilk lovers Redo of healer <3
+Diaboilk lovers other animes <3
 
 MINORS DNI
 
