@@ -1,7 +1,8 @@
 ![はのるの (1)](https://github.com/user-attachments/assets/91d3d9d8-3bc9-4fca-8918-5ead52575cc1)
 
-𝓗𝓮𝓵𝓵𝓸! 𝓲𝓶 𝓔𝓿𝓮  𝓸𝓻 𝓐𝓼𝓱𝓵𝔂𝓷  
-19
+𝓗𝓮𝓵𝓵𝓸! 𝓲𝓶 𝓔𝓿𝓮  𝓸𝓻 𝓐𝓻𝓲𝓮~
+  
+20
 
 ![images (56) (1)](https://github.com/user-attachments/assets/d4aea8c5-86ad-4cc0-ba67-53766e44a771)
 INT- DNI  Doctor who Genshin impact Honkai star rail
